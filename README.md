@@ -1,2 +1,2 @@
-### Being here is a formality for me right now.
+### Being here is a formality right now.
 **Will update this page soon.**
